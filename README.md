@@ -1,1 +1,1 @@
-- [Business Card QR](https://mimarveysiozkorkmaz-max.github.io/BusinessCardQR/index.html))
+- [Business Card QR](https://mimarveysiozkorkmaz-max.github.io/BusinessCardQR/index.html)
