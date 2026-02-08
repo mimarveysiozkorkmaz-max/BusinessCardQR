@@ -1,0 +1,1 @@
+- [Business Card QR][https://huseyinozkan.github.io/Mobil16Pages/index.html](https://mimarveysiozkorkmaz-max.github.io/BusinessCardQR/index.html)
